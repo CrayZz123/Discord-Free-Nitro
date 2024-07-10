@@ -1,4 +1,0 @@
-Discord
-Nitro
-Free
-Freenitro
